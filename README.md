@@ -1,4 +1,6 @@
-## We are trying to populate the Matcha from China and Japan since this is a new trend in Germany. 
+## Matcha Werk
+
+We are trying to promote the Matcha from China and Japan since this is a new trend in Germany. 
 
 A lot of matcha producer cannot speak neither german nor english in china and japan. 
 
